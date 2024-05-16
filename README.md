@@ -1,7 +1,6 @@
-### Hi there 👋, Tim here
+## Hey, Tim here 👋
 
-=> [timikels.com](https://timikels.com)
+=> [ikel.s.org](https://ikels.org)
 
-Cheers,  
+Best,  
 Tim
-
