@@ -10,9 +10,7 @@ I'm a creator, publisher, and marketer of simple, helpful digital products and s
 
 On [Ikels.org 🌐](https://ikels.org) you can see what I'm currently working on.
 
-## Want to work together?
-
-Hit me up.
+Want to work together? Hit me up.
 
 **Thank you!**
 
