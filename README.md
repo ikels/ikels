@@ -1,6 +1,6 @@
 ## Hey, Tim here 👋
 
-=> [ikel.s.org](https://ikels.org)
+=> [ikels.org](https://ikels.org)
 
 Best,  
 Tim
